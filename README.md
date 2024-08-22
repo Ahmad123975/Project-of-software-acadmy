@@ -1,2 +1,2 @@
 # Project-of-software-acadmy
-khan is bacl
+khan is back
